@@ -12,7 +12,7 @@ By the end of this book, you will have a clear understanding of how to communica
 
 Whether you're facing a specific challenge or simply looking to cultivate a more optimistic outlook on life, "Creating a Positive Change Narrative Through Communication Strategies" is a valuable resource for anyone seeking personal or professional growth through change. Don't miss out on this inspiring read!
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
 
