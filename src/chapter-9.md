@@ -1,5 +1,3 @@
-Chapter 9: Measuring and Evaluating Communication Effectiveness
-===============================================================
 
 Measuring and evaluating communication effectiveness is critical for ensuring that communication strategies are having the desired impact. In this chapter, we'll explore techniques for measuring and evaluating communication effectiveness.
 

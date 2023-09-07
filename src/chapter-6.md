@@ -1,5 +1,3 @@
-Chapter 6: Building Trust and Engaging Stakeholders
-===================================================
 
 Building trust and engaging stakeholders is essential for creating a positive change narrative that inspires action towards achieving specific objectives. In this chapter, we'll explore techniques for building trust and engaging stakeholders, creating authentic and transparent communication, and identifying and addressing concerns and objections.
 

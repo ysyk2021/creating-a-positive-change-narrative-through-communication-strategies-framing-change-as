@@ -1,5 +1,3 @@
-Techniques for Leveraging Different Communication Channels
-==================================================================================================================
 
 Leveraging different communication channels is essential for creating a positive change narrative. Different individuals may respond differently to different communication channels, so it's important to use a variety of channels to reach your audience. In this chapter, we'll explore techniques for leveraging different communication channels.
 

@@ -1,5 +1,3 @@
-Selecting the Right Channels for Target Audiences
-=========================================================================================================
 
 Leveraging different communication channels is essential for reaching target audiences and maximizing engagement in the change process. In this chapter, we'll explore how to select the right communication channels for specific target audiences.
 

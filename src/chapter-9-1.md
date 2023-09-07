@@ -1,6 +1,3 @@
-# Techniques for Measuring and Evaluating Communication Effectiveness
-
-## Introduction
 
 In this chapter, we will explore various techniques for measuring and evaluating the effectiveness of communication strategies in creating a positive change narrative. Effective communication is crucial in conveying messages that inspire, motivate, and engage individuals or groups to embrace change as an opportunity for growth. By employing appropriate measurement and evaluation techniques, organizations can gain insights into the impact of their communication efforts and make informed decisions to refine their strategies. This chapter aims to provide an overview of key techniques that can be utilized for this purpose.
 

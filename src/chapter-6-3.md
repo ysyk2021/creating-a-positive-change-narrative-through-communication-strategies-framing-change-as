@@ -1,5 +1,3 @@
-Identifying and Addressing Concerns and Objections
-=======================================================================================================
 
 Building trust and engaging stakeholders is essential for creating a positive change narrative. When individuals feel heard and understood, they are more likely to embrace the change narrative. In this chapter, we'll explore strategies for identifying and addressing concerns and objections when building trust and engaging stakeholders.
 

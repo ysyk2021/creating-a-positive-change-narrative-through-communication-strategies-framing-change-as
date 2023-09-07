@@ -1,5 +1,3 @@
-Chapter 4: Developing Strategies for Creating a Positive Change Narrative
-=========================================================================
 
 In this chapter, we'll explore techniques for developing strategies for creating a positive change narrative. By establishing clear objectives and priorities and creating a plan of action, you can effectively communicate a change narrative and inspire action towards achieving specific objectives.
 

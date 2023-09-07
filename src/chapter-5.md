@@ -1,5 +1,3 @@
-Chapter 5: Framing Change as an Opportunity for Growth
-======================================================
 
 In this chapter, we'll explore how to frame change as an opportunity for growth. By emphasizing positivity and possibility and highlighting benefits and opportunities, you can create a positive change narrative that inspires action towards achieving specific objectives.
 

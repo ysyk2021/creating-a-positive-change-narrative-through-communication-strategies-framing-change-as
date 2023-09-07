@@ -1,5 +1,3 @@
-Chapter 2: Overview of Communication Strategies
-===============================================
 
 In this chapter, we'll provide an overview of communication strategies and explore their impact on change management. We'll also discuss different perspectives and approaches to communication strategies and techniques for overcoming common challenges.
 

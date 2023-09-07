@@ -1,5 +1,3 @@
-Chapter 3: Understanding the Psychology of Change
-=================================================
 
 In this chapter, we'll explore the psychology of change and how it relates to growth. By understanding the psychological effects of change, you can create a positive change narrative that inspires action towards achieving specific objectives.
 

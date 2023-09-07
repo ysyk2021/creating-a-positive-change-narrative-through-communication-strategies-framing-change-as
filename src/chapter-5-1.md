@@ -1,5 +1,3 @@
-Techniques for Framing Change as an Opportunity for Growth
-==================================================================================================================
 
 Framing change as an opportunity for growth is a powerful communication strategy. It helps create a positive narrative around change, which can inspire and motivate people to embrace it. In this chapter, we'll explore techniques for framing change as an opportunity for growth.
 

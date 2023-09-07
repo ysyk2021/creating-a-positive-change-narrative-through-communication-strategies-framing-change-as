@@ -1,5 +1,3 @@
-Chapter 8: Leveraging Different Communication Channels
-======================================================
 
 In this chapter, we'll explore how to leverage different communication channels to create a positive change narrative. Effective communication strategies involve using the right channels to reach your target audience, maximize engagement, and build momentum for change.
 

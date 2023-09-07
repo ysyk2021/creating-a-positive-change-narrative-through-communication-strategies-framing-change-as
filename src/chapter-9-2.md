@@ -1,6 +1,3 @@
-# Establishing Key Performance Indicators (KPIs)
-
-## Introduction
 
 In today's fast-paced and dynamic business environment, organizations constantly strive to create positive change and drive growth. However, without proper measurement and evaluation, it becomes challenging to assess the effectiveness of communication strategies and initiatives aimed at bringing about this change. This is where Key Performance Indicators (KPIs) play a crucial role. In this chapter, we will explore the significance of KPIs in framing change as an opportunity for growth and discuss how to establish meaningful indicators to measure performance accurately.
 

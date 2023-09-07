@@ -1,5 +1,3 @@
-Adapting to Changes in the Communication Environment
-==============================================================================================================
 
 Sustaining positive change narrative efforts requires adapting to changes in the communication environment. As circumstances change, communication strategies must also adapt to ensure that the change narrative remains effective. In this chapter, we'll explore how to adapt communication strategies to sustain positive change narrative efforts.
 
@@ -41,5 +39,4 @@ Conclusion
 ----------
 
 Sustaining positive change narrative efforts requires adapting communication strategies to ensure that the change narrative remains effective over time. By regularly assessing the effectiveness of communication strategies, soliciting feedback from stakeholders, monitoring external factors, and being open to change, you can effectively adapt communication strategies and sustain positive change narrative efforts. Remember that change is a process, and ongoing evaluation and refinement of communication strategies is necessary for achieving specific objectives and building momentum for change.
-
 
