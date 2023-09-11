@@ -1,5 +1,4 @@
-Chapter 4: Highlighting Benefits and Opportunities
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the essential role of highlighting benefits and opportunities in creating a positive change narrative through communication strategies. Demonstrating the advantages and potential for growth associated with change is instrumental in motivating individuals and organizations to embrace it.
 

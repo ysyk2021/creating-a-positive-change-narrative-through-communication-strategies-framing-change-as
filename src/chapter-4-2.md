@@ -1,5 +1,4 @@
-Chapter 4: Establishing Clear Objectives and Priorities
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the critical step of establishing clear objectives and priorities when crafting a positive change narrative through communication strategies. To effectively frame change as an opportunity for growth, it is essential to have a well-defined roadmap that outlines your goals and priorities.
 

@@ -1,5 +1,4 @@
-Chapter 6: Telling Stories that Resonate with Audiences
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the art of storytelling as a powerful tool for creating a positive change narrative through communication strategies. Effective storytelling can captivate audiences, inspire empathy, and convey the message that change is an opportunity for growth.
 

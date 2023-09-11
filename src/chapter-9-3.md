@@ -1,5 +1,4 @@
-Chapter 12: Analyzing Results and Making Improvements
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the crucial process of analyzing the results of change communication strategies and making continuous improvements. Effective analysis and adaptation are key to refining your approach and ensuring that your positive change narrative remains compelling and relevant.
 

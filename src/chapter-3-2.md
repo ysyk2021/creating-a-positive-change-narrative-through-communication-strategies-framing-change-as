@@ -1,5 +1,4 @@
-Chapter 2: Identifying Key Elements that Affect Change Management
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the critical elements that influence change management within organizations and how understanding these factors is essential for creating a positive change narrative through communication strategies.
 

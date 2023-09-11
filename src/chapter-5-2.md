@@ -1,5 +1,4 @@
-Chapter 3: Emphasizing Positivity and Possibility
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the importance of emphasizing positivity and possibility when creating a positive change narrative through communication strategies. By focusing on the optimistic aspects of change, we can inspire hope, motivation, and a sense of opportunity for growth.
 

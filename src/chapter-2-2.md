@@ -1,5 +1,4 @@
-Chapter 5: The Impact of Communication on Change Management
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound impact of communication on change management when framing change as an opportunity for growth. Effective communication is the linchpin of successful change initiatives, and understanding its role is crucial for achieving positive outcomes.
 

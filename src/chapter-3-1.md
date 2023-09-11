@@ -1,5 +1,4 @@
-Chapter 4: Techniques for Understanding the Psychology of Change
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques for understanding the psychology of change. Gaining insights into how individuals and organizations perceive and react to change is crucial for creating a positive change narrative through communication strategies.
 

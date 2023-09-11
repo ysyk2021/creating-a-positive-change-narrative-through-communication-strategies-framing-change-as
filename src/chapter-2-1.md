@@ -1,5 +1,4 @@
-Chapter 3: Different Perspectives and Approaches to Communication Strategies
-============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various perspectives and approaches to communication strategies for creating a positive change narrative that frames change as an opportunity for growth. Understanding different viewpoints can help you tailor your communication efforts to effectively engage diverse audiences and stakeholders.
 

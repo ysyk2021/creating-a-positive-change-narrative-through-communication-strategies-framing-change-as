@@ -1,5 +1,4 @@
-Chapter 8: Continuous Learning and Improvement
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the importance of continuous learning and improvement in the context of creating a positive change narrative through communication strategies. Embracing a culture of ongoing learning and refinement is essential for sustaining and enhancing change efforts.
 

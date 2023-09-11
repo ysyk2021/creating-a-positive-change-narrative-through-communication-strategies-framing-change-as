@@ -1,5 +1,4 @@
-Chapter 7: Techniques for Overcoming Common Challenges in Communication Strategies
-==================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques for overcoming common challenges that may arise when implementing communication strategies aimed at framing change as an opportunity for growth. Identifying and addressing these challenges is essential for maintaining the effectiveness of your narrative.
 

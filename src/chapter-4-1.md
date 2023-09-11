@@ -1,5 +1,4 @@
-Chapter 6: Techniques for Developing Strategies for Creating a Positive Change Narrative
-========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore a range of techniques to help you develop effective strategies for creating a positive change narrative through communication. Framing change as an opportunity for growth requires careful planning and execution, and these techniques will guide you in crafting compelling narratives that inspire and motivate.
 

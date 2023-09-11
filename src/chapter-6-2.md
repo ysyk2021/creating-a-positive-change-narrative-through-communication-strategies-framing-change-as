@@ -1,5 +1,4 @@
-Chapter 5: Creating Authentic and Transparent Communication
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the importance of authentic and transparent communication when framing change as an opportunity for growth. Effective communication is a cornerstone for building trust, fostering understanding, and inspiring positive change narratives.
 

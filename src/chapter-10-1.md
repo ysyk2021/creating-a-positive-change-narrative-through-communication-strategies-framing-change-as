@@ -1,5 +1,4 @@
-Chapter 10: Techniques for Sustaining Positive Change Narrative Efforts
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques and strategies to ensure the sustained success of positive change narratives through effective communication strategies. Creating a narrative that frames change as an opportunity for growth is not a one-time effort but an ongoing journey.
 
